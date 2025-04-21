@@ -1,0 +1,2 @@
+# Social-Media-Manager
+This folder showcases my work and experience as a Social Media Manager (SMM). It includes content strategies, post designs, marketing calendars, brand kits, and performance reports from various projects and campaigns.
