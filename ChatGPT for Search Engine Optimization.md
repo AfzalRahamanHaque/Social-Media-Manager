@@ -1,6 +1,6 @@
 ## Course Name: ChatGPT for Search Engine Optimization
 
-![Certificate Image](https://github.com/AfzalRahamanHaque/Social-Media-Manager/blob/main/Marketing-with-canva-certificate.jpg?raw=true)
+![Certificate Image](https://github.com/AfzalRahamanHaque/Social-Media-Manager/blob/main/CHATGPT%20FOR%20SEO(CERTIFICATE)_page-0001.jpg?raw=true)
 
 
 **What I learned:**
